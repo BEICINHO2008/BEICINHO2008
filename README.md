@@ -1,4 +1,4 @@
-### Hi there 👋
+### Aoba, chique? Me chamo Alexandre, tenho 15 anos e estudo no Colégio Estadual de São Manoel.
 
 <!--
 **BEICINHO2008/BEICINHO2008** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
